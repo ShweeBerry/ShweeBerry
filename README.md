@@ -3,7 +3,7 @@
 
    ![image](https://github.com/user-attachments/assets/64e1ad12-676e-49a8-a23b-f44aefb07d88)
 
-          Shout out to all my friends!!     =^.^=
+                                    Shout out to all my friends!!     =^.^=
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/bae1fa46-a361-4069-9731-bf04aa122dea"/>
